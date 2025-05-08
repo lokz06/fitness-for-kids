@@ -7,8 +7,6 @@ A simple, screen-free way to get kids moving at home—using a safe and fun dumb
 ## ✅ What You’ll Need
 
 - 1 kids dumbbell set (1–3 lb weights)  
-  🔗 [Dumbbell Set We Use](https://example.com)  
-  🔗 [Alternative Option](https://example.com)
 - A small open space (like your living room)
 - A music playlist your kids enjoy
 - 10–15 minutes of time (ideally after dinner)
