@@ -76,9 +76,8 @@ Wind down to avoid soreness.
 
 ## 📎 Resource Links
 
-- [Dumbbell Set We Use](https://example.com)
-- [Alternative Dumbbell Option](https://example.com)
-- [Workout Music Playlist](https://youtube.com)
+- [Dumbbell Set We Use](https://tinyurl.com/msx23h2m)
+- [Alternative Dumbbell Option](https://tinyurl.com/mr4dxtkz)
 
 ---
 
